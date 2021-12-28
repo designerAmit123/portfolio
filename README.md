@@ -1,2 +1,4 @@
 # portfolio
-This is my designer portfolio
+My Designer Portfolio link 
+
+http://amitkduiuxdesigner.co.in/
